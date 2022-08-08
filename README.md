@@ -7,7 +7,7 @@
 
 - ⚡ Fun fact **I liked movies, I liked student, I liked play games,**
 
-- [curriculo] working on (https://github.com/srconsiglio.com)
+- [curriculo] working on (https://www.github.com/srconsiglio.com)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
